@@ -1,4 +1,4 @@
-# 🎮 Poppy Playtime Capítulo 4 APK [Juego Completo] 📥 Descarga Gratuita para Móvil en 2025  
+# Poppy Playtime Chapter 4 APK [Juego Completo] Descarga Gratuita para Móvil en 2025  
 
 ### [Enlace de descarga](https://bom.so/TUWTga)
 
